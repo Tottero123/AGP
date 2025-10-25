@@ -1,0 +1,3 @@
+To learn more about the font family and its license, visit https://www.fontmirror.com/konkhmer-sleokchher-regular
+
+Konkhmer Sleokchher Regular:  A font whispering tales of ancient Khmer scripts, its elegant curves and precise strokes evoke a sense of regal history.  Each character dances with a refined grace, blending tradition with a modern readability, perfect for titles demanding both authority and aesthetic charm.
